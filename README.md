@@ -1,4 +1,4 @@
-This is just an old trend tiktok game webpage version!
+This is just an old trend tiktok game web version!
 
 Try it out here : 👇
 
